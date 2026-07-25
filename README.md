@@ -1,5 +1,5 @@
 # Mohammed Arfath
-### Founder @ CogniLeads Systems
+### Founder @ VectraSyn Group
 > *"We Sync Your Work. We Forge Your Systems."*
 
 ---
