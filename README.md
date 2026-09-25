@@ -1,6 +1,6 @@
 # Mohammed Arfath
-### Founder @ VectraSyn Group
-> *"We Sync Your Work. We Forge Your Systems."*
+### Founder @ Kavolith Group
+> *"We Engineer intelligence in to Business."*
 
 ---
 
