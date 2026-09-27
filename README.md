@@ -6,7 +6,7 @@
 
 ## 🤖 About Me
 I build intelligent automation systems and AI-powered APIs
-that help small businesses eliminate manual work and scale
+that help Businesses eliminate manual work and scale
 without hiring more people.
 Self-taught. Real systems. Real results.
 Based in Hyderabad, India 🇮🇳
